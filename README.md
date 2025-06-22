@@ -1,4 +1,4 @@
-### ⚠️ Learning software like the world’s ending — because it might be.
+### Learning software like the world’s ending — because it might be.
 (Hopefully not — I always use my manners with AI.) 
 
 ## 🧠 About Me
