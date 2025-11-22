@@ -1,6 +1,7 @@
 ## Journey on Getting Cracked
 
-This is my journey of improving my craft day by day.  
+I am a system thinker and software is my tool of choice.
+
 Continuous effort. Continuous refinement.
 
 **Kaizen.**
