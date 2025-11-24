@@ -1,6 +1,6 @@
 ## Journey on Getting Cracked
 
-I am a system thinker and software is my tool of choice.
+I am a builder and software is my tool of choice.
 
 Continuous effort. Continuous refinement.
 
