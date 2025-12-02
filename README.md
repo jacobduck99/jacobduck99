@@ -1,4 +1,4 @@
-## Journey on Getting Cracked
+## Journey on Getting Cracked. Pause...
 
 I am a builder and software is my tool of choice.
 
