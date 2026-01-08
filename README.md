@@ -1,4 +1,4 @@
-## lover of systems.
+## consistency > talent.
 
 I am a builder and software is my tool of choice.
 
