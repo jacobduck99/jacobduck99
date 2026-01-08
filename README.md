@@ -1,4 +1,4 @@
-## Journey on Getting Cracked. Pause...
+## Journey on getter 1% better.
 
 I am a builder and software is my tool of choice.
 
