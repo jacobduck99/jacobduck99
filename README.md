@@ -1,4 +1,4 @@
-## consistency > talent.
+## Consistency > talent.
 
 I am a builder and software is my tool of choice.
 
