@@ -1,4 +1,4 @@
-## Journey on getter 1% better.
+## lover of systems.
 
 I am a builder and software is my tool of choice.
 
