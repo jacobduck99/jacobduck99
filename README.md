@@ -9,3 +9,7 @@ Continuous effort. Continuous refinement.
 🔗 https://www.boot.dev/u/shanegillis
 
 I link it here because my Boot.dev streak and progress reflect my grind more accurately than GitHub alone.
+
+P.P.S 
+
+It's my account I just named myself as my fav comedian. 
